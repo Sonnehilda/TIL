@@ -1,1 +1,1 @@
-TIL
+Inferred from namu.wiki
